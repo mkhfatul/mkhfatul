@@ -14,7 +14,6 @@ Menjadi developer yang bermanfaat dan berkontribusi untuk masyarakat melalui tek
 ## 🌐 Hubungi Saya
 - 📧 Email: fatulmkh123@gmail.com
 - 🚀 Media Sosial: affiliate
-- 💻 GitHub:https://github.com/@mkhmarifatul23-cell
-Comment
- 
+- 💻 GitHub:https:
+ https://github.com/mkhfatul
 
